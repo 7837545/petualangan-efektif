@@ -1,1 +1,1 @@
-# petualangan-efektif
+efektif
